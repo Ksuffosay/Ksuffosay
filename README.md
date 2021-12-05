@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ksuffosay
 - 👀 I’m interested in testovanie
-- 🌱 I’m currently learning GeekBrains
+- 🌱 I’m currently learning English
 - 📫 How to reach me demonika.love@gmail.com
 
 <!---
